@@ -1,25 +1,44 @@
 **Der wilde BAUER**
 
 Weil der wilde Bauer WILD ist, hat er keine Ahnung von modernen Sachen wie Geld
-und Strom. Der wilde Bauer wohnt irgendwo in den Waldbergen, kein Ahnthal und
+und Strom.
+
+---
+
+Der wilde Bauer wohnt irgendwo in den Weinbergen beim Ahrthal und
 hat, weil er ein Bauer ist, natürlich auch Bauernhoftiere: die wilden Kühe, die
-sich wie Kaninchen verhalten und mit den Hühnern buddeln, die wilden Kaninchen,
-die sich wie Kühe verhalten und auch Milch geben, aber diese sprudeln, und die
-wilden Hühner, die nur im Weltall abfallen können, weil, wenn sie eingeschlafen
-sind, wieder runter auf die Erde fallen. Wegen dieser Hühner hat der wilde Bauer
-über seinem wilden Waldbauerleben gespannt, dass alles glatt laufen haben, weil
-die Hühner, die sehr viel Schwung haben, nicht fallen können und diesen
+sich wie Kaninchen verhalten und mit den Hörnern buddeln, die wilden Kaninchen,
+die sich wie Kühe verhalten und auch Milch geben, aber diese spucken, und die
+wilden Hühner, die nur im Weltall schlafen können, und, wenn sie eingeschlafen
+sind, wieder runter auf die Erde fallen.
+
+---
+
+Wegen dieser Hühner hat der wilde Bauer
+über seinem wilden Wein blaue Netze gespannt, die aber große Löcher haben, weil
+sie die Hühner, die sehr viel Schwung haben, nicht halten können und von diesen
 durchlöchert werden.
 
-Der wilde Bauer baut auch nichts Unkraut an, was ja aber sowieso schon wild ist.
+---
+
+Der wilde Bauer baut auch wildes Unkraut an, was ja aber sowieso schon wild ist.
+
+---
+
 Jeden Morgen durchlebt der wilde Bauer, indem er mit speziellen Mitteln, die
-später noch erklärt werden, die Waldwege runter in die Alm rutscht und dann,
+später noch erklärt werden, die Waldwege runter in die Ahr rutscht und dann,
 weil er so viel Schwung hat, auf der anderen Seite wieder hochrutscht, und so
 geht es immer weiter, bis er schließlich unten im Fluss, den er dann auf diesem
-Stück keingeschlachtet hat, liegenbleibt. Einen großen Teil der Waldwege benutzt
+Stück ler geplanscht hat, liegenbleibt. 
+
+---
+
+Einen großen Teil der Waldwege benutzt
 der wilde Bauer als Skipiste, sogar das ganze Jahr, indem er dort Wasser, Öl,
 Seife und ganz oben drauf weißen Polyesterstoff hinlegt, worauf man dann prima
 rutschen kann.
+
+---
 
 Allerdings frieren im Winter, weil da dann auch Schnee liegt, immer ganz viele
 Leute im Skipistenbereich des wilden Bauern ein, welche er dann wieder auftauen
