@@ -42,24 +42,32 @@ rutschen kann.
 
 Allerdings frieren im Winter, weil da dann auch Schnee liegt, immer ganz viele
 Leute im Skipistenbereich des wilden Bauern ein, welche er dann wieder auftauen
-muss, was er dann auch versucht, indem er aus seinem Unkraut und hohlen Bäumen
-Bögen macht, mit denen er die eingefrorenen Leute wieder auftaut, aber dann
-schmilzt nicht nur das Eis, sondern auch direkt die Leute. Aber immerhin kann er
-dann nicht für Mord durch Erfrieren lassen angeklagt werden.
+muss, was er dann auch versucht, indem er aus seinem Unkraut und heißem Wasser
+eine Brühe macht, mit denen er die eingefrorenen Leute wieder auftaut.
+
+---
 
 Der wilde Bauer braucht für seine Tiere ganz besondere Ställe: Für die wilden
 Kühe muss er die Wände aus Metall machen, weil die Kühe sonst alles umschubsen
-würden. Allerdings hat er, wie ja vorher schon erzählt, keine Ahnung von Kaufen,
+würden. 
+
+---
+
+Allerdings hat er, wie ja vorher schon erzählt, keine Ahnung von Kaufen,
 sondern nur von Tauschen und einfach nehmen. Also hat er sich das Metall einfach
 von Autos auf einen Autofriedhof genommen. Daher hat er inzwischen auch sein
 wildes Auto, was mehr Schrott als Sinnvolles ist. Aber es fährt trotzdem noch.
-Für seine Hühner hat der wilde Bauer eine Art Auffangnetz, die aber nicht
-ordentlich funktionieren.
+
+---
+
 
 Die Kaninchen brauchen eine Weide mit niedrigen Zäunen, weil sie sonst
-drüberdurchhoppeln würden. Als würde hat der wilde Bauer einen Zaun im Wald, und
-der Zaun hat aus Ästen gebaut. Der wilde Bauer macht auch ein Tauschgeschäft,
-als er sich gegen ein wildes Auto, bei dem das Tank leer war, ertauscht hat.
+drunter durch flutschen würden. Als Weide hat der wilde Bauer eine Lichtung im Wald, und
+den Zaun hat aus Ästen gebaut. 
+
+--
+
+Der wilde Bauer hat auch ein wildes Fahrrad, dass er sich gegen ein wildes Auto, bei dem das Tank leer war, ertauscht hat.
 
 
 ---
