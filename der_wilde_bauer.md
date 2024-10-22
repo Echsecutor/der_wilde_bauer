@@ -72,7 +72,7 @@ Der wilde Bauer hat auch ein wildes Fahrrad, dass er sich gegen ein wildes Auto,
 
 ---
 
-... wilden Autos sucht er sich immer wieder neu, weil er natürlich auch vom
+Die wilden Autos sucht er sich immer wieder neu, weil er natürlich auch vom
 Tanken keine Ahnung hat. Der wilde Bauer hatte bei den leergelaufenen Autos nur
 gemerkt, dass sie nicht mehr fuhren, natürlich wusste er nicht, dass die Tanks
 leer waren. Und nach einer Beobachtung des wilden Bauern, wenn er direkt hinter
